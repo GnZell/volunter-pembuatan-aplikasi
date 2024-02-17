@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+*  Septian Dwi Anggoro Mochtar, [Linkedin](https://www.linkedin.com/in/septian-dwi-anggoro-mochtar-82aaa8289/)
